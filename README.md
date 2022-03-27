@@ -1,8 +1,8 @@
 ## *https://h4xr0x.cc*
 *🌏🌠🌑🌒🌓🌔🌏🌕🌖🌗🌘🌎☄️
 -->
-- ✔️👽  troll@phishing.you
-- 👀😵 jester not be the actual joke iam🔥@1337
+- ✔️👽 troll@phishing $laugh now 😂 cry later 😭
+- 👀😵 better jester not be the actual joker iam🔥@1337 
 - 🕶️🎈 I’m currently watching you, watching me, watching them
 - ☠️💻 👺red🤡hats🧠eat🗣️black🫀hats🩸for👹breakfast🫁 
 - 📫😶‍🌫️ 💀💨How to reach me ... ✨@h4xrOx#1337✨
