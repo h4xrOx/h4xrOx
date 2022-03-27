@@ -1,16 +1,13 @@
-### Hi there 👋
+## https://h4xr0x.cc
 
-<!--
-**h4xrOx/h4xrOx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
 -->
+- ✔️    IAMADMIN @1337
+- 👀   🔥#1337
+- 🐱‍💻 I’m currently watching you, watching me, watching them
+- 🐱‍👤 I’m looking 💀💀💀💀
+- 📫    How to reach me ... ✨@h4xr0x#1337✨
+
+
+h4xrOx is a ✨ special ✨ repository because its `READMEmd` (this file) = discord az gh auth @h4xr0x#1337
+
+---> 😅🤔😔🤬
