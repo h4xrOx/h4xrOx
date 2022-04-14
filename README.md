@@ -9,7 +9,7 @@
 
 ## http://YouTube.h4xr0x.club - YouTube search. 
 
-## http://search.h4xr0x.club - first case anon, throwbin, mega, ufilr, googlrdrive etc..
+## http://search.h4xr0x.club - first cse anon, throwbin, mega, ufilr, googlrdrive etc..
 
 ## http://h4xr0x.club - second cse , pastebin & other paste sites
 
