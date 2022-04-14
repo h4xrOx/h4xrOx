@@ -1,7 +1,7 @@
 
 ## *https://h4xr0x.cc* (ಠ_ಠ)━☆ﾟ.*･｡ﾟ
 
-## https://gamesense.cloud 
+## https://gamesense.cloud - nextcloud integrated with h4xr0x forums and projects
 
 ## [**cse programmable insite search for whatever you want.**]
 
