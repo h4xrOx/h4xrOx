@@ -1,13 +1,16 @@
-## *https://h4xr0x.cc* (ಠ_ಠ)━☆ﾟ.*･｡ﾟ
-¯\_ಠ_ಠ_/ᕦ(ò_óˇ)ᕤ(-_-メ)(;;;・_・)(╭☞•́⍛•̀)╭☞
--->
-- ✔️👽 troll@phishing $laugh now 😂 cry later 😭
-- 👀😵 better jester not be the actual joker iam🔥@1337 
-- 🕶️🎈 I’m currently watching you, watching me, watching them
-- ☠️💻 👺red🤡hats🧠eat🗣️black🫀hats🩸for👹breakfast🫁 
-- 📫😶‍🌫️ 💀💨How to reach me ... ✨@h4xrOx#1337✨
-…/╲/\╭(•‿•)╮/\╱\(+_+)(*_*O_o=(✷‿✷)(◠‿・)—☆
-( ´◡‿ゝ◡`)<(￣︶￣)>(人 •͈ᴗ•͈)(ʘᴗʘ✿)｡◕‿◕｡(●’3)♡(ε`●)
-h4xrOx is a ✨ special ✨ repository because its `READMEmd` (this file) = hook.js  `git@h4xrOx` @h4xr0x#1337
 
----> 😅🤔😔🤬
+## *https://h4xr0x.cc* (ಠ_ಠ)━☆ﾟ.*･｡ﾟ
+
+## https://gamesense.cloud 
+
+## [**cse programmable insite search for whatever you want.**]
+
+## http://cloud.h4xr0x.club - src sites, cloud sites, programming loads to CSGO cheat DLL date:anom
+
+## http://YouTube.h4xr0x.club - YouTube search. 
+
+## http://search.h4xr0x.club - first case anon, throwbin, mega, ufilr, googlrdrive etc..
+
+## http://h4xr0x.club - second cse , pastebin & other paste sites
+
+## http://hackforums.h4xr0x.club - search insite of all cheat forums at once or one at time includes unknowncheats, you game, and others 
