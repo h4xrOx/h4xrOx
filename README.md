@@ -1,5 +1,7 @@
 
 ## *https://h4xr0x.cc* (ಠ_ಠ)━☆ﾟ.*･｡ﾟ
+```
+## https://discord.gg/2wtnBmKCKh
 
 ## https://gamesense.cloud - nextcloud integrated with h4xr0x forums and projects
 
