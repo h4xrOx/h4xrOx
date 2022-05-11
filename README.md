@@ -6,9 +6,8 @@
 ### https://gamesense.cloud - nextcloud integrated with h4xr0x forums and projects
 
 ### https://h4xr0x.cc - forum
-[```**cse programmable insite search for whatever you want.**```]
+#### ```cse programmable insite search for whatever you want.```
    
-
 #### http://cloud.h4xr0x.club - src sites, cloud sites, programming loads to CSGO cheat DLL date:anonfiles
 
 #### http://YouTube.h4xr0x.club - YouTube search. 
