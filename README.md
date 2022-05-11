@@ -1,11 +1,11 @@
 
-# https://h4xr0x.cc (ಠ_ಠ)━☆ﾟ.*･｡ﾟ#1337 = elite = legend = h4xr0x#1337
+# (ಠ_ಠ)━☆ﾟ.*･｡ﾟ#1337 = elite = legend = h4xr0x#1337
 
 ### https://discord.gg/2wtnBmKCKh ✓[invite]
 
 ### https://gamesense.cloud - nextcloud integrated with h4xr0x forums and projects
 
-
+### https://h4xr0x.cc - forum
 [```**cse programmable insite search for whatever you want.**```]
    
 
