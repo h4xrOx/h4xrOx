@@ -1,6 +1,8 @@
 
 # (ಠ_ಠ)━☆ﾟ.*･｡ﾟ#1337 = elite = legend = h4xr0x#1337
 
+### YOUTUBE: https://www.youtube.com/@therealh4xr0x/
+
 ### [https://discord.gg/2wtnBmKCKh](https://discord.gg/Yc78HjqXVU) ✓[invite]
 
 ### https://gamesense.cloud - nextcloud integrated with h4xr0x forums and projects
